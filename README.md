@@ -16,5 +16,5 @@
 
 ### Связаться со мной:
 - https://vk.com/interseptor
-- Telegramm: @ivantsp
+- Telegram: @ivantsp
 - E-mail: ivanTsipkin@yandex.ru
